@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pepemobsters
+- 👋 Hi, I’m @pepemob PEPEMOB HAS TWO LOGOS
 - 👀 I’m interested in ... crypto
 - 🌱 I’m ... crypto
    I’m looking to collaborate on ...crypto
