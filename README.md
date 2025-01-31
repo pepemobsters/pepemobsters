@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... crypto
 - 🌱 I’m ... crypto
    I’m looking to collaborate on ...crypto
-- 📫 How to reach me ... website
+- 📫 How to reach me ... website, Follow on x and other socials
 - 😄 Pronouns: ...crypto
 - ⚡ Fun fact: ...crypto
 
